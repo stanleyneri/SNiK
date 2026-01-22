@@ -1,2 +1,2 @@
-# SNiK
+# SNiKEdits 
 In God I trust 🎴
